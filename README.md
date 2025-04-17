@@ -8,6 +8,6 @@
 ## Instructions
 
 1.Cut the eggs
-2. Boil the tomatoes
+2.Boil the tomatoes
 3.Grate the chicken
 4.Drink the coke
