@@ -4,4 +4,3 @@
 2. Tomatoes
 3. Chicken
 4. Coca-cola Zero
-5. 
